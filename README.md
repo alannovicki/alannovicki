@@ -1,1 +1,0 @@
-## alannovicki.com
